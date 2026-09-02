@@ -1,7 +1,7 @@
 ## nosikliw in GitHub
 🌱 I’m currently learning to use GitHub.
 💬 Ask me about how to have a personal relationship with God.
-⚡ Fun fact: I lived in North Africa for 18 years.  Je parle français.  Kntklm shweeya dial derija.
+⚡ Fun facts: I lived in North Africa for 18 years.  Je parle français.  Kntklm shweeya dial derija.
 
 
 <!--
