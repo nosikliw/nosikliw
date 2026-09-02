@@ -1,4 +1,8 @@
-## Hi there 👋
+## nosikliw in GitHub
+🌱 I’m currently learning to use GitHub.
+💬 Ask me about how to have a personal relationship with God.
+⚡ Fun facts: I lived in North Africa for 18 years.  Je parle français.  Kntklm shweeya dial derija.
+
 
 <!--
 **nosikliw/nosikliw** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
